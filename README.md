@@ -1,1 +1,1 @@
-👋 Hi, I’m @tylerbryy
+👋 Hi, I’m Tyler Gibbs
